@@ -1,1 +1,1 @@
-# uzedgoods.co.in
+# uzedgoods.github.io
